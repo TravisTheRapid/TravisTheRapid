@@ -11,7 +11,7 @@
 
 ╭─────────────── ⋆⋅☆⋅⋆ ───────────────╮
 
-　　♡ $${\color{#892525}\textsf{a}\color{#B32728}\textsf{n}\color{#E54D4D}\textsf{y}\color{#E97D7D}\textsf{ }\color{#F5C8C8}\textsf{p}\color{#FFE1E1}\textsf{r}\color{#FFFFFF}\textsf{o}\color{#F5C8C8}\textsf{n}\color{#E97D7D}\textsf{o}\color{#E54D4D}\textsf{u}\color{#B32728}\textsf{n}\color{#892525}\textsf{s}}$$
+　　♡ $${\color{#892525}\textsf{a}\color{#B32728}\textsf{n}\color{#E54D4D}\textsf{y}\color{#E97D7D}\textsf{ }\color{#F5C8C8}\textsf{p}\color{#FFE1E1}\textsf{r}\color{#FFE8E8}\textsf{o}\color{#F5C8C8}\textsf{n}\color{#E97D7D}\textsf{o}\color{#E54D4D}\textsf{u}\color{#B32728}\textsf{n}\color{#892525}\textsf{s}}$$
 　・　-16　 ♡ 
 [straw](https://artfuln1fan.straw.page)
  [ata](https://spokeyishere.atabook.org/)
