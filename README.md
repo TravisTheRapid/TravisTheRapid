@@ -3,9 +3,9 @@
 </p>
 
 <div align="center">
-<img wdith="800" height="800" alt="efjezw" src="https://media1.tenor.com/m/Ec-KRAM8SiIAAAAC/spoke-spokeishere.gif" />
+<img wdith="800" height="800" alt="efjezw" src="https://media.tenor.com/4SZ2UTyCukMAAAAi/travis-the-moon-i-rot-behind.gif" />
 
-₊˚⊹ **[spokemaxxing]** ⊹˚₊
+₊˚⊹ **[Travismaxxing]** ⊹˚₊
 
 <br><br>
 
@@ -19,7 +19,7 @@
 ╰─────────────── ⋆⋅☆⋅⋆ ───────────────╯
 <br><br>
 
-> *" Im the director, I direct things... "*
+> *" Make me normal, next time, God.... "*
 <br>
 ✦ ──────────────── ✦
 </div>
