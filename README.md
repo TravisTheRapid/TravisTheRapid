@@ -24,4 +24,4 @@
 ✦ ──────────────── ✦
 </div>
 <div align="center">
-<img width="200" height="187" alt="efjezw" src="https://media1.tenor.com/m/ojCB2CZtgSMAAAAC/spoke-spokeishere.gif" />
+<img width="200" height="187" alt="efjezw" src="https://media1.tenor.com/m/UuvBxdKOMnkAAAAd/travis-rapid-travis.gif" />
