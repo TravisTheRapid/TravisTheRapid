@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://capsule-render.vercel.app/api?text=Travis Rapid~🪽&animation=fadeIn&type=waving&color=red&height=100"/>
+  <img src="https://capsule-render.vercel.app/api?text=Travis~🪽&animation=fadeIn&type=waving&color=red&height=100"/>
 </p>
 
 <div align="center">
